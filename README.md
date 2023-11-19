@@ -1,4 +1,4 @@
-Telegram: @Virussel
+Telegram: <a href="https://t.me/virussel">@Virussel</a> 
 
 
 
